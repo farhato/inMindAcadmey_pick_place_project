@@ -1,0 +1,1 @@
+# inMindAcadmey_pick_place_project
